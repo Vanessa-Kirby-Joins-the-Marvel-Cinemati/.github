@@ -41,4 +41,6 @@ As the Fantastic Four take their first steps onto the big screen under Marvel’
 ---
 
 [Read More](https://www.articlegiants.com/2025/02/vanessa-kirby-joins-the-marvel-cinematic-universe-a-new-era-for-fantastic-four/)
+
+
 [Read More](https://www.articlegiants.com/)
